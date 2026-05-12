@@ -1,4 +1,4 @@
-# 
+# updated meme coin sniper bot | sandwich-attack-execution + rug-pull-detection offers the most advanced meme coin sniper bot, with sandwich-attack-execution and rug-pull-detection.
 
 
 
